@@ -6,3 +6,11 @@ xadrez-ponto-cruz
 os dias atravessam
 impávidos
 o espesso tecido da noite
+
+# tempo
+
+Kai kai
+Quetzalcoalt
+Kukulkán
+Oxumarê
+no futuro tudo era humano
