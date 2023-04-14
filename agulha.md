@@ -14,3 +14,7 @@ Quetzalcoalt
 Kukulkán
 Oxumarê
 no futuro tudo era humano
+
+# passado
+
+virá que eu vi
