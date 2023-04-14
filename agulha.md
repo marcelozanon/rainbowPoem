@@ -15,6 +15,11 @@ Kukulkán
 Oxumarê
 no futuro tudo era humano
 
+# passado
+
+virá que eu vi
+
 # morte
 
 essa é só sua opinião
+
