@@ -23,3 +23,7 @@ virá que eu vi
 
 essa é só sua opinião
 
+# outro mundo
+
+para viagem, por favor
+
