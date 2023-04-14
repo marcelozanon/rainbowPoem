@@ -25,5 +25,5 @@ essa é só sua opinião
 
 # outro mundo
 
-para viagem, por favor
+para viagem, por favor.
 
